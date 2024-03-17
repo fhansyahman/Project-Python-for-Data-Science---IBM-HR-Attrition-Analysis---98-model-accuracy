@@ -17,9 +17,3 @@ Anggota Kelompok :
 2. Muhammad Daffa Ramadhan
 3. Farhan Firmansyah
 4. Zahra Zen Marbun
-
-
-Group 2: 
- 
-                     
-
